@@ -1,4 +1,4 @@
-# 
+# smart Expensify for PC | Expensify for Windows Helper | receipt-capture + expense-tracking is the best Expensify for PC | Expensify for Windows helper, featuring receipt-capture
 
 
 
